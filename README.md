@@ -10,4 +10,4 @@ and **writing stories** about the world I dream of🤓
 I’m learning to turn every line of code  
 into a little piece of **hope** and **beauty**🥺  
 
-Let's make the digital world a **gentler place together🥳**
+Let's make the digital world a **gentler place together🥳🥳🥳**
