@@ -1,16 +1,13 @@
-## Hi there 👋
+**Welcome to my little world🥰**  
 
-<!--
-**liyuxuan719/liyuxuan719** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Hey, I'm Yuxuan 🌸**  
 
-Here are some ideas to get you started:
+**A trans girl🏳️‍⚧️🍥**  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I love **coding**, **AI**,  
+and **writing stories** about the world I dream of🤓  
+
+I’m learning to turn every line of code  
+into a little piece of **hope** and **beauty**🥺  
+
+Let's make the digital world a **gentler place together🥳**
